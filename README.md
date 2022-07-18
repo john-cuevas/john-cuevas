@@ -10,6 +10,6 @@ I am seeking any internship or junior/entry-level positions where I can actively
 Some of my passions include helping others and providing good customer service. I would love to join a team where I can truly make a difference with my work and do work that promotes equity and equality.
   
 - 🌱 I’m currently practicing algorithms, and getting better at solving complex problems.
-- 📫 How to reach me: jpmcuevas20@gmail.com or via [LinkedIn](https://www.linkedin.com/in/john-cuevas-115032155/).
+- 📫 How to reach me: jpmcuevas20@gmail.com or via [LinkedIn](https://www.linkedin.com/in/john-cuevas/).
 - ⚡ Fun fact: I enjoy playing golf with my friends, working out in my home gym, and taking care of all my houseplants!
 
